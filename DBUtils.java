@@ -1,0 +1,4 @@
+dkjfknkjgkjkdjohjatkjihjkjbkjdbnkef
+wgwrkjoigjekngkl
+jojlkmvkreajiogj
+:₹
